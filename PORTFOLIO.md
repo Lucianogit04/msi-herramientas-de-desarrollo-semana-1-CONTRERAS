@@ -4,4 +4,4 @@
 
 ## SOBRE MÍ
 
-## Habilidades 
+## Habilidades Técnicas
